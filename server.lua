@@ -1,0 +1,1 @@
+-- bura yok knk bu arada script bana ait değil ben sadece çevirip düzenleme yaptım
